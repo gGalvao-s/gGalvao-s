@@ -5,4 +5,4 @@
 
 Here are some ideas to get you started:
 
-- o
+- estudo no Tozzi
